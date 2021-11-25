@@ -1,2 +1,3 @@
 # Ring 
-Wrap on my finger like a ring.. ding 
+Wrap on my finger like a ring.. ding
+We gotta pop it like a sting..................
